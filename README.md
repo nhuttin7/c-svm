@@ -8,7 +8,7 @@ Then, a man called SVM comes. He attacks every corner, every topic,... He showed
 
 CNN still hoping one day he will be back and get what he deserved. Even though most of the research at the time is all about his "hatest friend". CNN still believe in his technique is the way that the brain is working
 
-The godfathers are bringing so much love and knowledge to come. Clearing the fog and blowing the fresh winds to the cold and lonely research environment, actually open a new era for the smart brain algorithm
+The godfathers come and bring so much love and knowledge to come with. Clearing the fog and blowing the fresh winds to the cold and lonely research environment, actually open a new era for the smart brain algorithm
 
 
 # CNN
